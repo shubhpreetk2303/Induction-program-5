@@ -6,7 +6,7 @@ Details about the 4 induction program in college
 Departments: Computer Science & Engineering | Information Technology
 📍 Venue: Auditorium + Classrooms
 
-**🧠 Morning Session – Universal Human Values with Dr. Priyadarshini**
+Universal Human Values with Dr. Priyadarshini**
 
 The day opened with a powerful and thought-provoking session by Dr. Priyadarshini, a renowned expert in Universal Human Values. Held in the college auditorium, the lecture focused on:
 
@@ -20,20 +20,7 @@ Her words resonated deeply with the students, encouraging them to reflect inward
 
 ✨ "Human values are not taught; they are awakened." – Dr. Priyadarshini
 
-🏎️ **Guest Talk – Gautam Murria from D4ME**
-Following the values session, we had the privilege of hearing from Gautam Murria, an accomplished motorsport enthusiast and core member of D4ME (Design for Mechanical Engineering).
 
-💥 Key Highlights:
-
-🛠️ His journey in motorsports – from passion to profession
-
-🧗‍♂️ Challenges faced and how persistence led to breakthroughs
-
-🏁 Encouragement for students to pursue their unique interests fearlessly
-
-His real-life stories of grit, failure, and triumph left students both motivated and empowered.
-
-🗣️ "When you're passionate about something, failure is just another step closer to success." – Gautam Murria
 
 
 🚀 **Causmic Club Showcase – Creativity & Innovation in Action**
